@@ -1,7 +1,3 @@
-hello Rammez
-Assalm u alaikum Hammad how are you?
-kese hai aap?
-jsdf
-sdfjsdfsdfs
-dfsd
-f
+Allah Hammad bhai koTraqi den me unke lie dua karonga 
+Hammad bhai kal aap mujhe sikhane aaenge kia git ka session lenge or timing konsi sahi rahegengi?
+
