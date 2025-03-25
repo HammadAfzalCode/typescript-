@@ -1,3 +1,2 @@
-Allah Hammad bhai koTraqi den me unke lie dua karonga 
-Hammad bhai kal aap mujhe sikhane aaenge kia git ka session lenge or timing konsi sahi rahegengi?
-
+Assalm u alaikum Hammad bhai kese haia aap?
+mene 3rd branch cretae kiya he or Readme.md me save karlia eh 
